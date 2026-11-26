@@ -11,3 +11,7 @@ Recipes listed in no particular order.
 ## Chef Zealand Mac & Cheese
 - [Recipe](Chef-Zealand-Mac-and-Cheese.md)
 - Source:  [chefzealand](https://www.instagram.com/reels/Cz7Ie4oxLg_/)
+
+## Italian Sausage Crescent Braid
+- [Recipe](Italian-Sausage-Crescent-Braid.md)
+- Source  [Becky, Two Bite Club](https://www.thetwobiteclub.com/2018/10/italian-sausage-crescent-braid.html)
