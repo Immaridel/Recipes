@@ -1,5 +1,5 @@
 # Sweet Glazed Honey Baked Ham
-This was phenomenal.  Link to the full recipe with detailed instructions is in my bio!
+This was phenomenal.  Link to the full recipe with detailed instructions is [in my bio](https://www.instagram.com/camcancoook_/)!
 
 ## Ingredients
 
