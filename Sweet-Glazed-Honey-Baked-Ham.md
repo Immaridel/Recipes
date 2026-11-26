@@ -1,5 +1,5 @@
 # Sweet Glazed Honey Baked Ham
-Source: [camcancook_](https://www.instagram.com/camcancoook_/)!
+Source: [camcancook_](https://www.instagram.com/camcancoook_/)
 
 ## Ingredients
 
